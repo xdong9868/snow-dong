@@ -1,2 +1,2 @@
-# snow-dong
-snow's repository
+# About Xue Dong (Snow)
+Hi! Thanks for visiting :grin:
